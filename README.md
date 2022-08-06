@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Navjeevan CBSE Academy
+- 👀 Navjeevan CBSE Academy is a co-educational day boarding school. The school is affiliated with the Central Board of Secondary Education. Along with academics, it provides an opportunity for both boys and girls to get skillful and explore well in various activities. The academy has an aim of providing quality education and has succeeded in doing so.
+- 🌱 Vrindavan City, Piprali Circle, Sikar, Rajasthan
+- 📫 How to reach me- https://navjeevanacademy.com 
